@@ -8,6 +8,8 @@
 - 115 g cold unsalted butter, cut into small pieces
 - 3 tbsp sugar, for dipping
 
+![Hazelnut cookie](https://juliasalbum.com/wp-content/uploads/2013/12/11490985153_693e769a39_c-1.jpg)
+
 ## Preparation
 
 1. Toast hazelnuts in a shallow baking pan until skins begin to loosen, about 6 minutes. Rub nuts in a kitchen towel to remove any loose skins (some skins may not come off) and cool to room temperature.
